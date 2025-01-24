@@ -25,6 +25,12 @@ How might understanding code help you in industries that aren’t directly relat
 How does coding enhance creativity or collaboration?encouraging children to experiment with different ideas and appoaches.
 
 
+# January 8, 2025
 
+Reflect on last semester. What did you enjoy most about the class? What could be improved? i like woring on the zumi coding.
+Reflect on last semester. What did you enjoy most about the class? What could be improved? i would like to work on the zumi cars again.
+ Are you interested in pursuing any certifications related to this class (e.g., Python, Unity, or other tech certifications)? If yes, what support or resources would help you feel prepared to achieve this goal?  would like to play basketbball or be a ruck driver which would nneed coding for gps and gps tracking.
 
+# january 13, 2025
 
+The tech industry is shifting towards prioritizing artificial intelligence (AI) skills over traditional tech roles. What are your thoughts on this shift? Do you think AI tools will enhance opportunities for workers or limit them? How would you prepare yourself for a career in a rapidly changing job market like this one?havig ai take over jobs would be bad  because they wuld not be able to play basketball or pay bills taxing and buy colthes and food for family.
