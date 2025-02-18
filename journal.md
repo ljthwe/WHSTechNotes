@@ -1,3 +1,7 @@
+# Febuary 18,2025 
+What's the most interesting thing you learned last week? It could be from this class, another subject, a conversation, a YouTube video, or even something you discovered on your own. Explain what it was, how you learned it, and why you found it interesting. when a fsh goes down a human throat and goes to your stomach they will die from your stomach acid.
+
+
 # August 09, 2024
 
 Today, I created my first GitHub account and repository. I'm excited to start using GitHub for my projects!
