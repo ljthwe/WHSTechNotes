@@ -1,3 +1,10 @@
+# March 17,2025
+What types of technology did you use most often? (Examples: apps, games, programming tools, robotics, social media, etc.) I used the the app is CODE.org and my laptop for stuff.
+How did this technology help you, entertain you, or challenge you in some way? becuase its fun just making stuff and putting coes and making them move around and do aother stuff.
+Can you connect any of your technology use to what we learn in this class? Think about problem-solving, coding, game development, app functionality, or other related skills.  could probaly use this while driving trucks if of my GPS  stop workig i can fix it.
+
+
+
 # Febuary 18,2025 
 What's the most interesting thing you learned last week? It could be from this class, another subject, a conversation, a YouTube video, or even something you discovered on your own. Explain what it was, how you learned it, and why you found it interesting. when a fsh goes down a human throat and goes to your stomach they will die from your stomach acid.
 
