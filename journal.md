@@ -1,3 +1,5 @@
+April 11 2025
+
 As we enter the final stretch of the school year and prepare for STAAR testing, it’s normal to feel a mix of emotions—stress, excitement, pressure, even exhaustion. This week’s journal is all about checking in with you.
 
 Write about the following:
