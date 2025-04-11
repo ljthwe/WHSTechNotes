@@ -1,3 +1,20 @@
+As we enter the final stretch of the school year and prepare for STAAR testing, it’s normal to feel a mix of emotions—stress, excitement, pressure, even exhaustion. This week’s journal is all about checking in with you.
+
+Write about the following:
+
+How are you feeling right now—mentally, emotionally, and physically?im feeling very good today emotionally im feeling kind of sad physically im feeling verry athletic todday.
+
+What’s been the most stressful part of school lately? having to come and work,walk to classes tthats far from each other,and waking up every day.
+
+What are some things you do (or could do) to take care of yourself during stressful times?for me to take care of my stress i will play basketball.
+
+What’s one goal you have for the rest of the school year? How will you stay motivated to reach it?for rest of the scool year i want to past all my classes with bs and A's this fourth quarter.
+
+Who is someone you can talk to when you’re feeling overwhelmed? Why do you trust them?my brother,sister,and mom.
+
+You don’t have to have all the answers—just be honest. This is your space.
+
+
 # March 17,2025
 What types of technology did you use most often? (Examples: apps, games, programming tools, robotics, social media, etc.) I used the the app is CODE.org and my laptop for stuff.
 How did this technology help you, entertain you, or challenge you in some way? becuase its fun just making stuff and putting coes and making them move around and do aother stuff.
