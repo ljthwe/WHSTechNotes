@@ -1,3 +1,18 @@
+
+# April 14,2025
+Do you believe such bans are beneficial or detrimental to students?No,some of these bans are not even necessary.These bans just want to make the student do even more we should be free to do what we want because when were out of school thats how the real world works.
+
+How might these policies influence student behavior, safety, and learning? Foster a positive and supportive learning environment or contribute to negative consequences like increased disengagement and anxiety.
+
+If implemented in your school, how would you respond to such restrictions? Understanding the reasons behind them, following the rules, and potentially engaging with the school community to discuss concerns respectfully.
+
+
+
+# April 7,2025
+How do you think AI can help you study, prepare, or stay organized for tests like the STAAR? What would be the most useful feature of an AI tutor for you personally? Be honest—do you think you’d use it? Why or why not? Ai can prepare you for Personalised Learning Experience,Improved Engagement and Motivation,The Role of Adaptive Learning Technologies,and andimprove student satisfaction.
+
+
+
 # April 11 2025
 
 As we enter the final stretch of the school year and prepare for STAAR testing, it’s normal to feel a mix of emotions—stress, excitement, pressure, even exhaustion. This week’s journal is all about checking in with you.
