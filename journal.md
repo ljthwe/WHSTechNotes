@@ -1,3 +1,18 @@
+# May 5,2025
+Do you think the 100 people could win? Why or why not? Use logic, facts, and your own reasoning.It's impossible for 100 of humans to win a fight against silverback gorilla because they have strong jaws and there hands are very strong to and there fast too. so 100 humans cannot defeat a gorilla.
+
+Do you think it’s responsible to make this kind of challenge go viral? What might people learn from it—or misunderstand? this challenge is very unresponsible to do a thing like that because you could die in a instant.
+
+What does this say about how trends spread online? Is there a connection between entertainment and education? yes because you learn from your actions and its entertainment is delightfull to pople but its not safe.
+
+Use the C.E.R. structure:
+
+Claim – What do you believe? this is not safe challenge to be dong.
+Evidence – What facts or logic back you up?google i looked it up and asked my sister f its possible and she said no.
+Reasoning – Why does this matter?it mmatter bbecause people would still try to figure out what owuld happen.
+
+
+
 
 # April 14,2025
 Do you believe such bans are beneficial or detrimental to students?No,some of these bans are not even necessary.These bans just want to make the student do even more we should be free to do what we want because when were out of school thats how the real world works.
