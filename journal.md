@@ -1,3 +1,10 @@
+# may 12,2025
+Recently, a dangerous trend called the “Chromebook Challenge” has been circulating online. This involves inserting objects like pencils into USB ports, which can cause fires or destroy the device. As a digital citizen and future tech professional, how should we respond to trends that put people and property at risk? What responsibilities do we have when using school technology? How would you explain the real-world consequences of this behavior to someone who thinks it’s “just a joke”?This shoud not even be a joke because you could die if this fire ever spreads fast and far to different places lots of people can die and there should be some ype of ID because you should not just sell chromebook without the age of maybe18 years old.
+
+
+
+
+
 # May 5,2025
 Do you think the 100 people could win? Why or why not? Use logic, facts, and your own reasoning.It's impossible for 100 of humans to win a fight against silverback gorilla because they have strong jaws and there hands are very strong to and there fast too. so 100 humans cannot defeat a gorilla.
 
