@@ -1,11 +1,11 @@
-# may 12,2025
+# may 12, 2025
 Recently, a dangerous trend called the “Chromebook Challenge” has been circulating online. This involves inserting objects like pencils into USB ports, which can cause fires or destroy the device. As a digital citizen and future tech professional, how should we respond to trends that put people and property at risk? What responsibilities do we have when using school technology? How would you explain the real-world consequences of this behavior to someone who thinks it’s “just a joke”?This shoud not even be a joke because you could die if this fire ever spreads fast and far to different places lots of people can die and there should be some ype of ID because you should not just sell chromebook without the age of maybe18 years old.
 
 
 
 
 
-# May 5,2025
+# May 5, 2025
 Do you think the 100 people could win? Why or why not? Use logic, facts, and your own reasoning.It's impossible for 100 of humans to win a fight against silverback gorilla because they have strong jaws and there hands are very strong to and there fast too. so 100 humans cannot defeat a gorilla.
 
 Do you think it’s responsible to make this kind of challenge go viral? What might people learn from it—or misunderstand? this challenge is very unresponsible to do a thing like that because you could die in a instant.
@@ -21,7 +21,7 @@ Reasoning – Why does this matter?it mmatter bbecause people would still try to
 
 
 
-# April 14,2025
+# April 14, 2025
 Do you believe such bans are beneficial or detrimental to students?No,some of these bans are not even necessary.These bans just want to make the student do even more we should be free to do what we want because when were out of school thats how the real world works.
 
 How might these policies influence student behavior, safety, and learning? Foster a positive and supportive learning environment or contribute to negative consequences like increased disengagement and anxiety.
@@ -30,12 +30,12 @@ If implemented in your school, how would you respond to such restrictions? Under
 
 
 
-# April 7,2025
+# April 7, 2025
 How do you think AI can help you study, prepare, or stay organized for tests like the STAAR? What would be the most useful feature of an AI tutor for you personally? Be honest—do you think you’d use it? Why or why not? Ai can prepare you for Personalised Learning Experience,Improved Engagement and Motivation,The Role of Adaptive Learning Technologies,and andimprove student satisfaction.
 
 
 
-# April 11 2025
+# April 11, 2025
 
 As we enter the final stretch of the school year and prepare for STAAR testing, it’s normal to feel a mix of emotions—stress, excitement, pressure, even exhaustion. This week’s journal is all about checking in with you.
 
@@ -54,14 +54,14 @@ Who is someone you can talk to when you’re feeling overwhelmed? Why do you tru
 You don’t have to have all the answers—just be honest. This is your space.
 
 
-# March 17,2025
+# March 17, 2025
 What types of technology did you use most often? (Examples: apps, games, programming tools, robotics, social media, etc.) I used the the app is CODE.org and my laptop for stuff.
 How did this technology help you, entertain you, or challenge you in some way? becuase its fun just making stuff and putting coes and making them move around and do aother stuff.
 Can you connect any of your technology use to what we learn in this class? Think about problem-solving, coding, game development, app functionality, or other related skills.  could probaly use this while driving trucks if of my GPS  stop workig i can fix it.
 
 
 
-# Febuary 18,2025 
+# Febuary 18, 2025 
 What's the most interesting thing you learned last week? It could be from this class, another subject, a conversation, a YouTube video, or even something you discovered on your own. Explain what it was, how you learned it, and why you found it interesting. when a fsh goes down a human throat and goes to your stomach they will die from your stomach acid.
 
 
